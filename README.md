@@ -1,0 +1,1 @@
+# makefun-ai-excuse-01
